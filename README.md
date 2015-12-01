@@ -1,1 +1,0 @@
-# s-lyall.github.io
